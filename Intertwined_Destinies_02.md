@@ -18,7 +18,7 @@ I mutter more to myself, “I should’ve known this wasn’t going to work out�
 
 “Duh, who isn’t?” The voice comes from the shore of a pond to my left.
 
-“I believe we’ve met here before, in my dreams –- or at least I think it was in my dreams -– and I feel like he can help me.” I continue to look around but have yet to see another person. “Will you please show yourself? I just need…”
+“I believe we’ve met here before, in my dreams -- or at least I think it was in my dreams -- and I feel like he can help me.” I continue to look around but have yet to see another person. “Will you please show yourself? I just need…”
 
 I sigh. “I know I must sound like a whiny, helpless child. I don’t know what I need besides this man’s help.”
 
