@@ -6,7 +6,7 @@
 
 I look around the edge of the tree and see a dryad form begin to emerge.
 
-“Jasmine,” I address the dryad, “I need you and your sisters to pass on a message to the Aos Si. Can you do that? Get the word to them that my guard and I will be heading that way before nightfall to pass through the dolmen portal to the Mortal Realm.”
+“Jasmine,” I address the dryad, “I need you and your sisters to pass on a message to the Aos Si. Can you do that? Get the word to them that my guard and I will be heading that way before nightfall to pass through the doleman portal to the Mortal Realm.”
 
 “As always Brody, we are at your service.” Jade says as she curtsies, and merges back with the tree. Before long, the forest will be a buzz with word of our coming.
 
@@ -50,7 +50,7 @@ Trixie is nods her head and she finally says, “I agree. At least I can speak m
 
 At the library I share all that I know with my traveling companions. There are a few questions all around, which I quickly answer to the best of my ability with the knowledge that I have. “Mount up, men!”
 
-We mount and make our way to the sidhe mound and the dolmen that will take us to the Mortal Realm. Hopefully in a close vicinity to where Morgan and Fiona are located.
+We mount and make our way to the sidhe mound and the doleman that will take us to the Mortal Realm. Hopefully in a close vicinity to where Morgan and Fiona are located.
  
 ---
 
