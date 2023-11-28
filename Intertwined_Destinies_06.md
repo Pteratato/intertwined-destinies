@@ -1,3 +1,5 @@
+#06 [Mr. Tibbs}
+
 “Daphne, do you know where Raven’s necklace is?” I ask.
 
 “When I woke up after the accident the staff gave it to me for safekeeping. I think it was taken off en route to the hospital. I asked if I could put it back on her but the staff told me no, to just hang on to it. Should I have put it back on her? I have it here.” She reaches over and pulls the top drawer open on the bedside table, then gently pulls out the necklace and hands it to me.
@@ -14,7 +16,7 @@ Daphne is once again looking at me with wide eyes, but she nods her consent.
 
 Nemus just shrugs, and with a wave of his hand the glamor is lifted.
 
-“Oh My Goodness!” Daphne says, staring at the three of us. “I must have died in that accident and this is a weird hallucination in the afterworld. She’s a faerie, and you all have pointed ears except for him. Wow!” She shakes her head back and forth as if clearing cobwebs from her mind, but her eyes never stray from Elrond.
+“Oh My Goodness!” Daphne says, staring at the three of us. “I must have died in that accident and this is a weird hallucination in the afterworld. She’s a *faerie*, and you all have pointed ears except for him. Wow!” She shakes her head back and forth as if clearing cobwebs from her mind, but her eyes never stray from Elrond.
 
 I make a mental note to ask Elrond about it later, but right now we have a mission to complete. But before I can focus on that, Trixie lands on my hand to examine Raven’s talisman again.
 
@@ -28,7 +30,7 @@ I look down on her in this form and realize how beautiful she really is. Her bro
 
 “Begin,” I say quietly and hear Nemus behind me start his chant.
 
-–
+---
 
 [Raven]
 
