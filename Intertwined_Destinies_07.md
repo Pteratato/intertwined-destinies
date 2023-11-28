@@ -1,3 +1,5 @@
+# #07 [Raven]
+
 I’m breathing heavily. My body is still in turmoil as I struggle to adjust to what happened, but then I open my eyes to see his brilliant sapphire eyes looking back at me. It’s at that moment that I realize I’m lying on top of him and his arms are wrapped around me, securing me to his chest. I look up at him through my lashes, and then slowly wrap my arms around him, pulling him closer, savoring his smell and his feel. I quickly lose myself in him as I snuggle closer to his chest, my breathing heavy as if I’ve just run a marathon. Just being held by him calms my jagged nerve endings. I could get lost in this feeling; it’s like nothing that I have ever experienced before. I lay my head on his chest and close my eyes, sighing in contentment, feeling like I’ve finally come home. The pull I feel toward Mr. Tibbs is nothing short of magick, and I would be content in his arms forever.
 
 “Mmhmm, I don’t mean to interrupt but as sweet as this little reunion has turned out to be, we should probably get going.” I hear a male say voice over my shoulder – Elrond.
