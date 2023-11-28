@@ -1,3 +1,5 @@
+# #09 [Raven]
+
 Trixie the myna bird flutters about my head for just a moment until Nemus drops the glamour that conceals us all. That’s when I discover that Velma and Harley are both elves; to say I didn’t see that coming would’ve been an understatement. Then Velma takes one look at me and begins to gush, going on about how beautiful I am and how she always knew that I would be something special.
 
 Being home should be comforting, but I find that I’m feeling oddly out of place. Walking in the house, I take in all the familiar surroundings and I swallow back the tight knot in my throat. I already feel her absence from this place as we make our way to the back of the house where the oversized kitchen and sitting room are located.
