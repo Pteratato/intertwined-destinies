@@ -1,4 +1,4 @@
-# #06 [Mr. Tibbs}
+# #06 [Mr. Tibbs]
 
 “Daphne, do you know where Raven’s necklace is?” I ask.
 
