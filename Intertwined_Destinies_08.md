@@ -1,10 +1,12 @@
+# #08 [Raven]
+
 As I make my way to the bathroom I admit to myself that Mr. Tibbs is right – I can barely hold myself up. I feel as weak as a day-old kitten. Thank God there’s a seat situated in the shower. I move about slowly, walking towards the mirror with my gaze steadfastly at my feet. I grip the counter by the sink and slowly move my gaze up to meet my reflection in the mirror.
 
 “Well, gag me with a spoon,” I breathe. Whoa… I’m at a loss for words at the reflection looking back at me. My hazel eyes are now a brilliant amber and a bit larger, now more almond-shaped and slanting upwards with long, thick eyelashes. Gone are the softly rounded cheeks from before; now my face is more angular, my cheekbones are high and prominent and my mouth is fuller and pointier than I remember. I turn my head to look at my profile, and that’s when I noticed my ears.
 
-“Well snap, I wasn’t expecting that,” I mumble to myself. My ears are pointed like the elves and Trixie’s. I touch the point of my ears tentatively and watch them twitch ever so slightly, sensitive. Stunned, I continue to take in the many changes I endured during my awakening – or should I say metamorphosis?
+“Well snap, I wasn’t expecting that,” I mumble to myself. My ears are pointed like the elves and Trixie’s. I touch the point of my ears tentatively and watch them twitch ever so slightly, sensitive. Stunned, I continue to take in the many changes I endured during my awakening – or should I say *metamorphosis*?
 
-Gone is the mousy brown hair; my hair is now the color of rich caramel with golden highlights throughout, making it look multicolored. Now it reaches past my waist and is so much thicker, with a gentle wave, and heavier than before. My skin is now a light golden brown and sparkles ever so slightly…
+Gone is the mousy brown hair; my hair is now the color of rich caramel with golden highlights throughout, making it look multicolored. Now it reaches past my waist and is so much thicker, with a gentle wave, and heavier than before. My skin is now a light golden brown and sparkles ever so slightly...
 
 “Wait, that can’t be right, how am I going to explain that?”
 
@@ -19,7 +21,8 @@ I make my way over to the shower and strip out of my oh-so-attractive hospital g
 Ten minutes later I’m standing in front of the basin and mirror, dressed in a green sundress that hits mid-thigh. I’ve pulled my unruly damp hair back into a high ponytail and take one last look in the mirror, steeling myself for what’s to come.
 
 My body has also filled out, and I have a little more curve to me that I didn’t have before. I readied myself to step out into the room beyond and figure out what comes next. I sigh deeply; there is so much I don’t know, but I have Daphne and Mr. Tibbs and Trixie, and whoever else is out there that I haven’t met yet. My life up to this point has been ordinary, but I know that’s about to change. On unsteady legs, I emerge from the bathroom to meet my destiny.
-—
+
+---
 
 [Mr. Tibbs]
 
@@ -59,7 +62,8 @@ I hear several of my men clearing their throats. I pull back and gaze into her e
 
 The men at the table snort in disagreement, but I know I will do everything in my power to keep my promise.
 
-—
+---
+
 [Raven]
 
 I turn my attention to the food in front of me, which is now cold, and realize just how famished I really am. I take solace in the fact that Mr. Tibbs is here with me as I happily devour my meal. So much has happened in such a short amount of time. I quickly realize that I have been so focused on Mr. Tibbs and Daphne that I haven’t taken in the rest of Mr. Tibbs’ men.
@@ -82,7 +86,7 @@ About that time Daphne exits the bathroom looking refreshed. The bandage on her 
 
 “I happen to disagree. And why has everyone taken to calling me ‘my lady’?” I mumble under my breath.
 
-Mr. Tibbs smiles at me and says, “Men meet Raven; my kindred, my intertwined.”
+Mr. Tibbs smiles at me and says, “Men meet Raven; my kindred, my *intertwined*.”
 
 “Raven, meet Tolin, Tiern, Elrond, and Nemus. Tolin and Tiern are twins and they are elves; Elrond and Nemus are druids; and you already know Trixie.” Mr. Tibbs gestures with his hand at each man in the room so that I can tell them apart.
 
