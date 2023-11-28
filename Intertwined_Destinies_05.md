@@ -8,7 +8,7 @@ It turns out that both girls were transferred to a hospital in Knoxville. We’r
 
 As we pull up outside the hospital, I hop out of the vehicle before it’s even parked and make my way to the entrance. As I enter, I stalk toward the information desk. “Raven Nightshade, what room is she in?”
 
-“Are you family? It’s after visiting hours and only family may enter to see her after visiting hours.” The receptionist states with a tight lip grimace.
+“Are you family? It’s after visiting hours and only family may enter to see her after visiting hours.” The receptionist states with a tight-lippped grimace.
 
 Her words push me over the edge and I explode. “I demand to see her at once!!” I state as all of my guards gather behind me. I think that I might lose it before Nemus steps forward and very gently persuades the receptionist to give us her room number and buzz us in.
 
