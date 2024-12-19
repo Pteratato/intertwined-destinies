@@ -1,4 +1,4 @@
-#15 [Raven]
+## #15 [Raven]
 
 The day flies by in a blur, and before I know it the brutal services have been concluded. I find that Daphne and I are speaking to our family attorneys and being given letters that have been entrusted to them for this very occasion. They run through each family's will and not surprisingly everything that was in mom’s name has been transferred to me, in the event that Kat was no longer with us. Since Daphne was still under the age of eighteen all her family belongings were put in a trust for her. Both of us are being left very well off, not that it matters where we are heading. No mention of guardianship was made due to the fact that within a matter of months Daphne would turn eighteen. Velma and Harley, Trixie, Mr. Tibbs and his men have all been very supportive, but I sense that both Daphne and I need to be alone with our letters and our thoughts as we get back to the house.
 
