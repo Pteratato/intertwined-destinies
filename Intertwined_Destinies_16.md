@@ -1,4 +1,4 @@
-#16 [Mr. Tibbs]
+## #16 [Mr. Tibbs]
 
 After a late lunch, we make our way out to the practice range that’s located between Raven’s and Daphne’s houses. All the while Trixie is fluttering about, murmuring to herself and anyone else who is listening that it’s time for the girls to kick some butt. Surprisingly, we find a large weapon shed with a variety of bows and arrows ranging from recurve, to compound, to crossbow. All of which are more sophisticated than what we have in Faerie. The guys and I pick our bows of choice, only after the girls get their bows. It’s immediately apparent that they’re very familiar with the weapons and that this is a hobby for them.
 
